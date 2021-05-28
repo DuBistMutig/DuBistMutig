@@ -8,4 +8,10 @@
 
 «⨯» Discord ➠ https://discord.gg/TFYvXfD
 
+«⨯» Instagram ➠ https://www.instagram.com/dubistmutig/
+
+«⨯» TikTok ➠ https://www.tiktok.com/@dubistmutig
+
+«⨯» LinkTree ➠ https://linktr.ee/dubistmutig
+
 ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬ ▬
