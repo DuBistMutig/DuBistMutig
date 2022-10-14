@@ -6,7 +6,7 @@
 
 «⨯» Twitch ➠ https://twitch.tv/dubistmutig
 
-«⨯» Discord ➠ https://discord.gg/WTTcM3BABN
+«⨯» Discord ➠ https://discord.gg/35KA9rAP9B
 
 «⨯» Instagram ➠ https://www.instagram.com/dubistmutig
 
